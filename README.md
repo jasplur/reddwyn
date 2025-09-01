@@ -1,2 +1,0 @@
-![](https://media.discordapp.net/attachments/1076549645519552552/1412066073439633552/Untitled873_20250901142523.png?ex=68b6f082&is=68b59f02&hm=087e0c8c80a221a6269648d21cfa0b50c8eda9d901e81236a76ed52969bd7f54&=&format=webp&quality=lossless)
-call me jaspuh or oslo something something
